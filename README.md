@@ -1,0 +1,1 @@
+# 2025_pengolahan_citra_ti2a
